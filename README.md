@@ -4,7 +4,7 @@
 
 ---
 
-Incoming PhD student @ASU. Researching by day, building by night.
+**Incoming PhD student [@ASU](https://engineering.asu.edu/meet-ira-fulton/). Researching by day, building by night.**
 
 ---
 
